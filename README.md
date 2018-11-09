@@ -1,1 +1,1 @@
-# https://quynhanh-samia.github.io/motherfuckingwebsite/
+# https://quynhanh-samia.github.io/bettermotherfuckingwebsite/
